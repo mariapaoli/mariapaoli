@@ -18,6 +18,6 @@ Speacking Epanish 🇪🇸 English 🇬🇧 and Italian 🇮🇹 🍝, I’m int
 
 ## You can reach me at
 
-* mariapaoli dot com
-* ::star::blush: My [Linkedin](https://www.linkedin.com/in/mariapaoli)
+* mariapaoli at gmail
+* My [Linkedin](https://www.linkedin.com/in/mariapaoli)
 
