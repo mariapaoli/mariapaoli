@@ -1,16 +1,24 @@
-- 👋 Hi, I’m @mariapaoli, argentine-italian based at Buenos Aires City 🇦🇷🇮🇹
-- 🗣️ Speacking Epanish 🇪🇸 English 🇬🇧 and Italian 🇮🇹 🍝
-- 👀 I’m interested in:
--       finance 📈
--       startups and business development 🚀
--       smart cities and government management 🏙 🏗
--       political audience strategies 🌐
--       social and world populationanalysis 🛰 
-- 👩🏻‍🎓 Currently immersed in data science, data visualization an UX UI
-- 🤜🏾🤛 Seeking to collaborate with dynamic and ambitious teams worlwide
-- 🛰 You can reach me on mariapaoli at gmail
+![hola](./javascript.gif)
 
-<!---
-mariapaoli/mariapaoli is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+## Hi! I am Maria Paoli, argentine-italian 🇦🇷🇮🇹 based at Buenos Aires, currently Junior Data science 🚀
+
+## My journey!<br>
+Degree in Economics, 11 years experience as Development and Fundraising Leader in different organization (private and public sectors) and projets. Three years as Chief Development Officer at the Ministry of Culture of the City of Buenos Aires, Museo Moderno de Buenos Aires -working with organizations, sponsors companies, major donors and allies worldwife-.
+  
+## Currently immersed in Data Science and Data Visualization 📈 ## <br>
+Speacking Epanish 🇪🇸 English 🇬🇧 and Italian 🇮🇹 🍝, I’m interested in:
+
+    - Startups and business development
+    - Finance
+    - Smart Sities and government management
+    - Political audience strategies
+    - Social and world population analysis
+    - 
+  
+## Seeking to collaborate with dynamic and ambitious teams worlwide ##
+
+## You can reach me at
+
+* mariapaoli dot com
+* ::star::blush: My [Linkedin](https://www.facebook.com/jujavier.romano](https://www.linkedin.com/in/mariapaoli)
+
