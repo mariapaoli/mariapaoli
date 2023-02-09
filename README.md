@@ -13,12 +13,11 @@ Speacking Epanish 🇪🇸 English 🇬🇧 and Italian 🇮🇹 🍝, I’m int
     - Smart Sities and government management
     - Political audience strategies
     - Social and world population analysis
-    - 
   
 ## Seeking to collaborate with dynamic and ambitious teams worlwide ##
 
 ## You can reach me at
 
 * mariapaoli dot com
-* ::star::blush: My [Linkedin](https://www.facebook.com/jujavier.romano](https://www.linkedin.com/in/mariapaoli)
+* ::star::blush: My [Linkedin](https://www.linkedin.com/in/mariapaoli)
 
