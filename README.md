@@ -4,7 +4,7 @@
 Degree in Economics, +11 years experience as Development and Fundraising Leader in different organization and projets. Three years as Chief Development Officer at the Ministry of Culture of the City of Buenos Aires, Museo Moderno de Buenos Aires -working with organizations, sponsors companies, major donors and allies worldwife-.
   
 ## My language! <br>
-Epanish 🇪🇸 English 🇬🇧 and Italian 🇮🇹 🍝, I’m interested in:
+Epanish 🇪🇸 English 🇬🇧 and Italian 🇮🇹 🍝
 
 ## 🚀💎📊 Looking to collaborate with worldwidw innovative and ambitious teams at: <br>
     - Startups and business development
