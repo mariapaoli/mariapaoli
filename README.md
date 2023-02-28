@@ -1,4 +1,4 @@
-![hola](./nyBreath-crop3.gif)
+![hola](./4XUPBSKFUJIANKBOIDHJEED3I4.jpg)
 
 ## 👋🏽 Hi! I am Maria Paoli, based at Buenos Aires argentine-italian 🇦🇷🇮🇹 in the challenge of becoming a Data Science and Data analysis professional 👩🏻‍🚀 
 
