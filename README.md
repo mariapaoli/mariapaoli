@@ -1,4 +1,4 @@
-![hola](./a-brief-history-of-maps-and-their-role-in-urban-development_1.jpg)
+![hola](./866341-1518543616.jpg)
 
 ## 👋🏽 Hi! I am Maria Paoli, based at Buenos Aires argentine-italian 🇦🇷🇮🇹 in the challenge of becoming a Data Science and Data analysis professional 👩🏻‍🚀 
 
