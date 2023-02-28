@@ -1,4 +1,4 @@
-## 👋🏽 Hi! I am Maria Paoli, based at Buenos Aires argentine-italian 🇦🇷🇮🇹 in the challenge of becoming a Data Science - Machine learning, Data analysis - Data viz professional 👩🏻‍🚀 
+## 👋🏽 Hi! I am Maria Paoli, based at Buenos Aires argentine-italian 🇦🇷🇮🇹 in the challenge of becoming a Data Science and Data analysis professional 👩🏻‍🚀 
 
 ## My journey so far<br>
 I have a degree in Economics, +9 years experience as Development and Fundraising Leader in different organization and projets. Three years as Chief Development Officer at the Ministry of Culture of the City of Buenos Aires, Museo Moderno de Buenos Aires -working with organizations, leads as sponsors companies, major donors and allies worldwide programs, fundraising strategies, CRM, governmental performance reports for my area and teams, etc.-.
