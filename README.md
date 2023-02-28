@@ -1,3 +1,5 @@
+![hola](./hi.gif)
+
 ## 👋🏽 Hi! I am Maria Paoli, based at Buenos Aires argentine-italian 🇦🇷🇮🇹 in the challenge of becoming a Data Science and Data analysis professional 👩🏻‍🚀 
 
 ## My journey so far<br>
