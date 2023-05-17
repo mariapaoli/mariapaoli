@@ -1,9 +1,9 @@
 ![hola](./4XUPBSKFUJIANKBOIDHJEED3I4.jpg)
 
-## 👋🏽 Hi! I am Maria Paoli, based at Buenos Aires argentine-italian 🇦🇷🇮🇹 in the challenge of becoming a Data Analyst and Machine Learning for BI professional 👩🏻‍🚀 
+## 👋🏽 Hi! I am argentine-italian 🇦🇷🇮🇹 based at Buenos Aires in the challenge of becoming a BI Data Analyst - Machine Learning professional 👩🏻‍🚀 
 
-I have a degree in Economics, +10 years experience as Development and Fundraising Chief Officer in different organization, such as the Ministry of Culture of the City Government of Buenos Aires, the Museo Moderno de Buenos Aires and more. Very accustomed to working as public relations with NOG, big international companies (marketing areas) and donors programs. Development strategies, CRM, performance reports, etc.-.
-I also have +7 years experience as Production Team Leader at the advertising film industry for major brands and companies -working with local and international production houses and directors-.
+I have a degree in Economics, +10 years experience as Development and Fundraising Chief Officer in different organizations, such as the Ministry of Culture of the City of Buenos Aires, the Museo Moderno de Buenos Aires and more. Very accustomed to working as public relations with teams of NOGs, big international companies (marketing areas) and donors programs. Development strategies, CRM, performance reports, etc.-
+I was also a producer at the advertising film industry for major brands and companies -working with local and international production houses and directors-, for more than 7 yeras.
   
 ## My languages <br>
 Epanish 🇪🇸 English 🇬🇧 Italian 🇮🇹 
