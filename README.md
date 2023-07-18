@@ -1,4 +1,4 @@
-![hola](./4XUPBSKFUJIANKBOIDHJEED3I4.jpg)
+![hola](./Captura de Pantalla 2023-07-18 a la(s) 14.02.02.png)
 
 ## 👋🏽 Hi! I am argentine-italian professional, and always a student, based at Buenos Aires 👩🏻‍🚀 
 
