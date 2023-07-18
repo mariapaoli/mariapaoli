@@ -1,4 +1,4 @@
-![hola](./2023_07.png)
+![hola](./4XUPBSKFUJIANKBOIDHJEED3I4.jpg)
 
 ## 👋🏽 Hi! I am argentine-italian professional, and always a student, based at Buenos Aires 👩🏻‍🚀 
 
