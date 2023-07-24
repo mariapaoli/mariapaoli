@@ -10,24 +10,21 @@ In addition, I have also played a previous long role in the advertising film ind
 
 While proud of my accomplishments in this realm, I am now seizing the opportunity to chart a new course.
 
-Recognizing the immense potential of technology and the power of data-driven insights, I am actively immersing myself in the world of Data analytics, business intelligence, and machine learning. This deliberate shift in focus allows me to harness the transformative capabilities of emerging technologies and leverage data-driven strategies to boost strategic decision-making.
-
 I am eagerly embracing this shift as a <b>golpe de timón</b>, a decisive turning point in my career.
 
-By combining my extensive background, I am poised to make a profound impact in driving innovation, shaping organizational strategies, and delivering tangible results.
+By combining my extensive background, I am poised to make a profound impact in driving innovation, shaping organizational strategies, social investigations and delivering tangible results.
 
-Even as a junior on this new path, I have a very short learning curve, I know the most important points of interest in maximising profits, I have vision and experience in quickly recognising the core, vision and functioning of a business, and its potential.
+Having a strong curiosity and experience in quickly recognising the core and functioning of a business,and in different topics of social and behavioral analysis, even as a junior on this new path, I I have a wide experience in aproaching the complexities of key indicators for maximising profits, and developing hypotheses of great interest on social matters.
 
-Let's explore how we can level up your organization's success through accurate knowledge of your clients and demand behavior, partners and competitors, internal team performance KPIs, and more, enabling the best data-driven decision-making.
+Let's explore how we can level up your organization's success through accurate knowledge of your markets, clients, demand behavior, teams KPIs, and more, enabling the best data-driven decision-making.
   
 ## My languages <br>
 Epanish 🇪🇸 English 🇬🇧 Italian 🇮🇹 
 
 ## 🌐🛰 Looking to collaborate with innovative and ambitious teams at: <br>
-    - Business Inteligence 
-    - Historical and social analysis 
-    - Global econonomy, clusters and economic sectors
-    - Smart Cities and Governance
+    - Business Inteligence
+    - Clusters and economic sectors
+    - Social indicators Analysis
     - Investments and capital markets
     
 ## You can reach me at
