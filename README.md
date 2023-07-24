@@ -14,7 +14,7 @@ I am eagerly embracing this shift as a <b>golpe de timón</b>, a decisive turnin
 
 By combining my extensive background, I am poised to make a profound impact in driving innovation, shaping organizational strategies, social investigations and delivering tangible results.
 
-Having a strong curiosity and experience in quickly recognising the core and functioning of a business,and in different topics of social and behavioral analysis, even as a junior on this new path, I I have a wide experience in aproaching the complexities of key indicators for maximising profits, and developing hypotheses of great interest on social matters.
+Having a strong curiosity and experience in quickly recognising the core and functioning of a business,and in different topics of social and behavioral analysis, even as a junior on this new path of DA, I have a wide experience in aproaching the complexities of key indicators, goals and concepts for maximising profits, and developing hypotheses of great interest on social matters.
 
 Let's explore how we can level up your organization's success through accurate knowledge of your markets, clients, demand behavior, teams KPIs, and more, enabling the best data-driven decision-making.
   
