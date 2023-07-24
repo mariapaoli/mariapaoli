@@ -24,7 +24,7 @@ Epanish 🇪🇸 English 🇬🇧 Italian 🇮🇹
 ## 🌐🛰 Looking to collaborate with innovative and ambitious teams at: <br>
     - Business Inteligence
     - Clusters and economic sectors
-    - Social indicators Analysis
+    - Social behavioral Analysis
     - Investments and capital markets
     
 ## You can reach me at
