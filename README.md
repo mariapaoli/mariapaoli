@@ -1,4 +1,4 @@
-![hola](./4XUPBSKFUJIANKBOIDHJEED3I4.jpg)
+![hola](%202023_07.png)
 
 ## 👋🏽 Hi! I am argentine-italian professional, and always a student, based at Buenos Aires 👩🏻‍🚀 
 
@@ -23,10 +23,10 @@ Let's explore how we can level up your organization's success through accurate k
 ## My languages <br>
 Epanish 🇪🇸 English 🇬🇧 Italian 🇮🇹 
 
-## 🌐🛰💎 Looking to collaborate with innovative and ambitious teams at: <br>
-    - Business Inteligence ❤️
-    - Historical and social analysis ❤️
-    - Global econonomy, clusters and economic sectors ❤️
+## 🌐🛰 Looking to collaborate with innovative and ambitious teams at: <br>
+    - Business Inteligence 
+    - Historical and social analysis 
+    - Global econonomy, clusters and economic sectors
     - Smart Cities and Governance
     - Investments and capital markets
     
