@@ -1,6 +1,6 @@
 ![hola](%202023_07.png)
 
-## 👋🏽 Hi! I am argentine-italian based at Buenos Aires 👩🏻‍🚀 
+## 👋🏽 Hi! I am an argentine-italian based at Buenos Aires 👩🏻‍🚀 
 
 With a degree in Economics and over a decade of diverse experience, I have embarked on an exciting journey to pivot towards the technology sector and data-driven decision-making. As a highly accomplished Development and Fundraising specialist, I have successfully driven initiatives with esteemed organizations such as the Ministry of Culture of the City of Buenos Aires, Consejo Nacional de las Artes de Chile, Museo Moderno de Buenos Aires, collaborating and working with multinational and local corporations such as Total Energies, TEKA, Banco Santander, Fundación Santander, Banco Galicia, Fundación Itaú, among others.
 
